@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VAAC780201HTLZMR07
+VAAC780201HTLZMR07
